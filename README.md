@@ -1,0 +1,2 @@
+# Kingstec
+Ideas For Microsoft
